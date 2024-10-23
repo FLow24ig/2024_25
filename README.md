@@ -1,3 +1,3 @@
 # 2024_25
-ya 
-vez
+FLorian Cosma 23/10/2024
+nueve linia
